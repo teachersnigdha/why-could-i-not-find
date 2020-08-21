@@ -1,4 +1,4 @@
-![](assets\img\ClipartKey_96610.png)
+![](assets/img/ClipartKey_96610.png)
 
 > Styles: [English](README.md), [Odia](Odia.md), [Translated](Translated.md).<br>
 > [Click here to listen](https://soundcloud.com/teachersnigdha/why-could-i-not-find).
